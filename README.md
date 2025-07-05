@@ -12,6 +12,6 @@
 平台E结合免费与高清付费内容，满足不同用户的需求。各平台通过差异化服务，提供丰富选择，保证优质观影体验。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/jj20250705/jj14 ）</span>
 
 
